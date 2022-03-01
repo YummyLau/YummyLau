@@ -10,7 +10,7 @@
 坐标广州，网易互动娱乐事业群  
 移动开发组团队招 Android高级/资深工程师 iOS高级/资深工程师； Android/iOS 实习生  
 欢迎有意向的朋友自荐或推荐   
-邮箱联系 gzliuyanming@corp.netease.com  或微信联系。  
+邮箱联系 yummyl.lau@gmail.com  或微信联系。  
 
 
   
